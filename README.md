@@ -1,2 +1,2 @@
-Tere
-Personal wesite.
+Tere Baudin Personal wesite.
+Escala en Versos
